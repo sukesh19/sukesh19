@@ -5,7 +5,7 @@
 - 📫 How to reach me ...
 - 😄 Pronouns: ...sukesh
 - ⚡ Fun fact: ...team player...tech savvy...
-- sports>>>cricket>>>>>>Badminton>>>>>...chess
+- sports>>>cricket>>>>>>Badminton>>>>>...Chess
 
 <!---
 sukesh19/sukesh19 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
