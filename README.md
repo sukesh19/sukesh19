@@ -5,7 +5,7 @@
 - 📫 How to reach me ...x
 - 😄 Pronouns: ..."su-k-e-sh"
 - ⚡ Fun fact: Interested in AI and ML ....building agents...team player...tech savvy....
-- sports>>>cricket>>>>>>Badminton>>>>>...
+- sports>>>cricket>>>>>>Badminton>>>>>
 
 **===INDIAN===**
 
