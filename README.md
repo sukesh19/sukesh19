@@ -3,7 +3,7 @@
 - 🌱 I’m currently trying to learn...Python...Golang...Aws...DBMS...Mongodb...Nodejs...git...DSA...AI>>>ML>>gen ai
 - 💞️ I’m looking to collaborate on ...learning DSA and interview prep ....data science...
 - 📫 How to reach me ...x
-- 😄 Pronouns: ..."su-k-e-sh"
+- 😄 Pronouns: ..."su-k--shh"
 - ⚡ Fun fact: Interested in AI and ML ....building agents...team player...tech savvy....
 - sports>>>cricket>>>>>>Badminton>>>>>
 
